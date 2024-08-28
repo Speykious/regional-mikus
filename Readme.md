@@ -61,6 +61,7 @@ Here's a bunch of regional mikus that have been popping up recently :3
 - 🇨🇿 Czech Miku
   - [Czech Miku (`@mliko444`)](<https://x.com/mliko444/status/1827424914065801303>)
   - [Czech (Moravian Wallachian) Miku (`@Havranil`)](<https://x.com/Havranil/status/1827404983358435658>)
+  - [Czech (Ostrava) Miku (`@Havranil`)](<https://x.com/Havranil/status/1827684964701254109>)
 - 🇳🇱 Dutch Mikus
   - [Dutch Miku (`@MiMikuChair`)](<https://x.com/MiMikuChair/status/1828437465369088053>)
   - [Dutch Miku (`@vestariares`)](<https://x.com/vestariares/status/1828371314681245884>)
